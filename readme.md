@@ -19,3 +19,9 @@ I can work with Frontend in general, but these are what I find comfort with
 - Language learning - Norwegian Bokmål | French after
 - Speedrunning Hotline Miami 2
 - Jogging
+
+
+
+
+
+Credit for pfp: YuneTori from Pinterest
